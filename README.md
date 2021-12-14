@@ -443,7 +443,7 @@ Most beginners make the mistake of being too stressed when engaging into anal se
 - Take a warm bath
 - Take a semi-hot shower
 - Listen to relaxing music
-- Massaging (either with some kind of equipment of with a partner)
+- Massaging (either with some kind of equipment or with a partner)
 - Use guided breathing exercises
 - Use guided imagery (or other sensory routines)
 - Do yoga
