@@ -345,7 +345,7 @@ A popular kink that males like to satisfy is "sounding". This involves placing a
 
 # Diet
 
-There is a dirty part of anal sex that many people don't like, for obvious reasons this is understandable, but luckily there are some things you can do to make the preparation for anal sex less intrusive. One of the things you can do to improve preparation and the quality of anal sex in general is diet. There are many, many, many reasons why you should eat healthy, but one of them actually is to make anal sex better and this can be done with a few simple steps that should improve your health in general. What we should be looking for foods that have an impact to our stool's consistency, all food will contribute something to the consistency, but some of the foods are quite dramatic in this effect. What we are looking for to achieve is an infrequent bowel movement (not pooping often) and having a semi-soft, but one piece-like stool (not many lumps). Below you can find a list of foods that are known to make your stool more liquid-like (avoid these foods):
+There is a dirty part of anal sex that many people don't like, for obvious reasons this is understandable, but luckily there are some things you can do to make the preparation for anal sex less intrusive. One of the things you can do to improve preparation and the quality of anal sex in general is diet. There are many, many, many reasons why you should eat healthy, but one of them actually is to make anal sex better and this can be done with a few simple steps that should improve your health in general. What we should be looking for foods that have an impact to our stool's consistency, all food will contribute something to the consistency, but some of the foods have quite dramatic effect. What we are looking for to achieve is an infrequent bowel movement (not pooping often) and having a semi-soft, but one piece-like stool (not many lumps). Below you can find a list of foods that are known to make your stool more liquid-like (avoid these foods):
 
 - Dairy products (milk, cream, cheese, yogurts, whey protein and others), they seem to accelerate bowel movement in some people, but not all of them ([source](https://pubmed.ncbi.nlm.nih.gov/17522613/))
 - Red meat, some people don't seem to be able to properly digest high amounts of fat and protein ([source](https://www.geelongmedicalgroup.com.au/2018/02/signs-that-your-body-might-not-be-properly-digesting-meat)), one indicator of improper fat digestion is that your stool floats
@@ -380,7 +380,49 @@ There is a possibility of creating a balanced diet, but your feces are still too
 
 Note: Having a liquid-like stool is not desirable either as it puts a lot of strain to your colon and rectum. As you are young, the chance of developing hemorrhoids and rectal prolapse is smaller, but as you age you increase the risk of creating hemorrhoids and unintentional prolapse. Keep and eye on your diet.
 
+Fiber can be classified into two categories - soluble and insoluble fiber. When we are talking about stool's consistency, soluble fiber is the one that makes your poop more liquid-like, but insoluble fiber is the one that makes your poop more solid. Insoluble fiber does don't dissolve in your gut at is mostly passed through, it other words, it simply adds bulk to your poop and increases the chances of you having a one piece solid poop. Soluble fiber dissolves into your gut, but what also happens is a fermentation process that requires your gut bacteria, this type of fiber breaks down and creates a more liquid-like poop, during this process a significant amount of gas is created. The idea of creating a balanced diet that helps creating a soft (but solid one piece) stool is to help you reduce the need to use intrusive cleansing methods before anal sex, you might be even able to just sit on the toilet before anal sex and be confident that it will not get messy if you have a proper stool.
+
+Most foods contain both soluble and insoluble fiber, luckily there are foods that contain much more insoluble fiber than soluble fiber. Below you can find a list of foods that have a high amount of insoluble fiber:
+- lettuce leaves
+- spinach
+- sweet potatoes
+- light-colored lentils
+- quinoa
+- beetroots
+- brown rice
+- oranges
+- pineapple
+- pecan nuts
+- blueberries
+- ripe banana
+- buckwheat
+- tomatoes
+- cucumbers
+- bell pepper
+- cheddar cheese
+- grapes
+- sauerkraut
+
+Note: A common complaint from people that start a high-fiber diet is that their stomach is bloating and they have a lot of gas. Switching to foods that contain mostly insoluble fiber reduces the side effects from high-fiber diet.
+
+Below you can find a list of foods that have a very high amount of soluble fiber, consider removing these foods from your diet if you suspect that your stool consistency is too liquid-like or you experience stomach bloating or increased stomach gas:
+- apples
+- pears
+- pasta
+- wholegrain foods
+- carrots
+- unripe banana
+- most nuts
+- peas
+- most beans
+- wheat
+- many more
+
+Note: With time your body might adapt to high soluble fiber diets and reduce the mentioned side effects. You should gradually increase your fiber intake or replace all foods in your diet with ones that don't contain a lot of soluble fiber.
+
 Related to the health of your digestive system is the topic of probiotics. Some foods, for example, fermented dairy products (such as yogurt) can improve the micro-biome of your gut, this can help to digest foods and improve health. You can also drink supplements that contain probiotics to achieve a similar effect. Some studies even have found that you can prevent various skin diseases by a proper amount of probiotics intake ([source](https://pubmed.ncbi.nlm.nih.gov/24364369/)). While studies have shown the importance of probiotics, there do not seem to be studies that have shown benefits of taking probiotics, if your digestive system is already functioning properly. This raises some questions about your gut health when you incorporate a lot of intrusive cleansing for anal sex, but the answer to this question is inconclusive, there is a lack of evidence, yet many people claim they feel improvements either way, this will be left to the reader to decide whether to drink probiotics or not to minimize the disruption of your gut micro-biome.
+
+Note: Probiotics can help the fermentation process that helps breaking down soluble fiber. Consider adding probiotics to your diet to help digesting soluble fiber. Sadly studies cannot confirm that probiotics help reducing stomach gas, you need to eat more insoluble fiber to reduce stomach gas and stomach bloating.
 
 In case you eat very acidic foods or lack proper fiber intake, then you may experience "anusitis", which is an irritation around the tissue of anus. This can cause itching, pain and even blood. If you do experience such issues, then consider looking into your diet to find the cause of it, avoid using rough toilet paper. Compared to hemorrhoid that are usually found only on one side of the anus or rectum, anusitis is usually around the whole anus.
 
@@ -565,7 +607,7 @@ To preform an anal massage on a person, the person can have cleansed themselves 
 
 Note: As with any massage, consider using a massage oil. For internal anal massage consider using a lube, oil and silicone based lubes work the best for anal massages.
 
-Start the massage on the butt cheek area, use light, but noticeable strokes around the butt area, don't to light touches, you need to add some pressure to massage the muscles. Communicate with the person to better understand how much pressure you need to apply, ask what feels better by increasing pressure. Sometimes the person will want a lot of force on those butt cheeks to even feel the pressure through the fat of the butt cheeks. Vibrations on the butt cheeks and the thighs can also feel pleasant for some people. Focus on the lower back, butt cheeks and thighs. Consider squeezing the sit bones (the lower part of the butt cheeks), those are highly sensitive and can bring a lot of sensation.
+Start the massage on the butt cheek area, use light, but noticeable strokes around the butt area, don't be too light touches, you need to add some pressure to massage the muscles. Communicate with the person to better understand how much pressure you need to apply, ask what feels better by increasing pressure. Sometimes the person will want a lot of force on butt cheeks to even feel the pressure through the fat of the butt cheeks. Vibrations on the butt cheeks and the thighs can also feel pleasant for some people. Focus on the lower back, butt cheeks and thighs. Consider squeezing the sit bones (the lower part of the butt cheeks), those are highly sensitive and can bring a lot of sensation.
 
 Try spreading the butt cheeks with your hands lightly in circular motions or try rubbing the butt cheeks against each other gently. Try blowing the anus area with hot or cold air to bring a different sensation, ask the person what they find more pleasant. Try massaging the tailbone, it does not need a lot of pressure since the skin is very close to the bone in that area, but you need to keep a lookout for signs that the person starts to feel you are massaging the area since it is also possible to not add enough pressure, consider asking the person whether the person would like more pressure on that area or not.
 
