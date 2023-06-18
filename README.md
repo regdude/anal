@@ -1,5 +1,6 @@
 # Table of Contents
 - [Introduction](#Introduction)
+- [TL;DR](#TL;DR)
 - [Reasons to have anal sex](#Reasons-to-have-anal-sex)
 - [Safety](#Safety)
 - [Anatomy](#Anatomy)
@@ -40,6 +41,65 @@ Anal sex has been known for a while, probably even as long as human history is r
 While it may seem that anal sex is simple, it is actually a lot more complex than regular intercourse and requires quite a lot of knowledge to make it safe and pleasurable. This guide will try to focus on the anatomy of both male and female bodies, hygiene, health, preparation, techniques, equipment, recommendations and much more to make sure you do it properly. Beginners will be tempted to skip various sections, but it is highly recommended that you read the entire document to understand the details of various aspects for anal.
 
 Anal sex (and sex in general) is an area that sometimes lack scientific evidence and sometimes it is hard to make rational conclusions, whether it is due to lack of evidence or because of arguments that are logical fallacies. While this guide will contain some scientific facts, a lot of information will come from anecdotal reports, where people report their success with various methods, but a lot of these methods will lack scientific proof, there will also be an issue with the absolute truth since sources of claims will be subjected to selection bias by definition. The guide will try to explain some of the methods and why they could be true, but it is up to the reader to decide what to believe in. This guide should be considered as a compilation of reports and it is up to the reader how he or she uses the information and whether he or she acknowledges possible logical fallacies or not.
+
+# TL;DR
+
+WARNING: This guide contains a lot of crucial information that can prevent you from harming you and others. It is highly advised to read this guide completely.
+
+Note: If you are going to read the full guide, then it is recommended to skip this chapter. A lot of nuances are simply skipped, this chapter skips a lot of possible alternative ways and gives you the fastest yet still safe way to get into anal sex.
+
+So you are not a reader-type and want to just jump into it. Anal sex is not simple, but if you insist on skipping crucial information, then this chapter is going to contain the bare minimum. Please, if you intend to skip all other chapters, then at least don't skip this one. The following text is going to assume you are the one receiving anal sex (being penetrated).
+
+**Stages:**
+1) Start with touches: Not everyone enjoys anal sex, but a lot of people can learn to enjoy it. Touch your anus for a few days while you shower. Gently press the anus to get familiar with the sensation. Rub your finger around the anus, but don't insert fingers into your anus just yet. The principle: get use to the sensation that something is touching your butt.
+
+Note: Enema or douching is not suitable for this stage. By doing this in the shower, you can wash any feces away. Avoid doing enemas or douching for now.
+
+2) Get a proper lube: Lube is a must, don't use soap, don't use saliva, you need lube, otherwise you will most likely injure yourself and not feel any pleasure at all. There are a lot of variables when it comes to lube, but for the sake of simplicity just get a decent water-based lube. Look for reviews in your area or online, no need to buy the best possible lube yet, almost any water-based lube will do just fine. The principle: get a water-based lube, any lube you can buy at a trustworthy store will be fine for now.
+
+3) Cleansing, the first: Don't use an enema or a douche yet. Plan your diet for few day(s) before engaging into anal play. Avoid spicey food, avoid junk food, avoid processed food. Eat fiber-rich meals for a couple of days before engaging into anal play. On the day you are planning to do anal play, simply go to the toilet and empty your colon as usual. The principle: have a good diet for a few days prior to anal play, go sit on the toilet, don't use an enema or douche.
+
+4) Inserting a finger (or two): After a few days of touching your anus in the shower, you can proceed to using fingers. Apply a decent amount of lube on one of your fingers. Start to insert the finger into your anus, but don't push it in with force. Try getting in only the tip of your finger and then squeeze your anus in such a way that you can feel your finger being slightly squeezed. Hold the squeeze for couple of seconds and then relax the anus. As soon as you relax your anus, you should notice that the finger slides in almost by itself. Repeat the squeezing procedure until you have inserted your finger into the anus. Hold your finger inside your anus for a while, then try moving the finger inside you, wiggle it around, make small thrusts. Try two fingers. The principle: Get used to the sensation that something is inside your anus.
+
+5) Get a good dildo: Get a small sized (start with less than 3cm in diameter at the top) dildo that is made out of a good material (silicone, stainless steel, glass; avoid buying other materials until you are more knowledgeable). Butt plugs can be used, but it is recommended to start with a dildo. Realistic dildos are fine, solid dildos are also fine, beaded dildos are fine, it doesn't really matter what shape it is as long as it is small. Don't use household items, the risk of injury or infection is too high. The principle: get a decent dildo, a small one.
+
+Note: Silicone dildos are usually the go-to choice, though you might want to use a stainless steel dildo or a glass dildo at first. There are a lot of downsides when using hard sex toys, but silicone sex toys tend to leave a distinct smell when used anally.
+
+6) Anal play with a dildo, the first: Have a good diet, go to the toilet and clean out your colon before engaging into anal play, don't use an enema or douches. It is best to do this in the shower. Apply lube on your fingers, slowly insert one finger into your anus and use the squeezing procedure if needed. Wiggle the finger around, move the finger to the sides to stretch your anus gently. Insert another finger with lube and repeat. Consider trying tree fingers, don't forget to add lube. When you feel ready, apply lube to your dildo and slowly insert it into your anus, use the squeezing procedure if needed. No need to insert the dildo deeply inside, a few centimeters inside is just fine for now. Let the dildo sit into your rectum for a while. Try moving the dildo to sides, try making small thrusts. The principle: use your fingers to warmup your anal muscles, use lube, slowly insert your dildo into the rectum and progress to making small thrusts.
+
+Note: If you are a beginner, then never try to insert a dildo without warming up. Use your fingers and the squeeze method to prepare yourself for larger objects.
+
+7) Listen to your body: Anal is **NOT** supposed to hurt. It is supposed to be pleasant. If you experience pain or even discomfort, then it means your body is trying to signal you that something is not right. Listen to these sensations, they are crucial. Whenever you feel pain, it means stop and try something else. Don't wait the pain to go away, otherwise you might need to visit a hospital. Blood means immediate stop, no questions asked. Dark blood means you seriously need to see a doctor, **NOW**. The principle: Pain means you are doing something wrong, stop it.
+
+Note: The internet is full of bad advice. One of the worst advice you can find is "you will get used to the pain". Avoid such advice and avoid people who advocate such reckless behavior.
+
+8) Stimulate yourself with anal: As usual, have a good diet, go to the toilet before engaging into anal play, don't use an enema or douches. It is best to do this in the shower. Repeat the the steps described in stage 7, but while thrusting the dildo you should slowly start stimulating yourself in traditional ways (penis/clitoris/vagina). Try to orgasm if you can. Repeat this for a few sessions until you start to find anal pleasurable. Don't go fast or hard with anal stimulation, don't go too deep, it will not feel as pleasurable as traditional masturbation yet. The principle: incorporate anal play into your traditional masturbation ways, keep it gentle.
+
+Note: Slowly incorporating anal play is very important. You need to train your body to associate anal play with pleasure, this takes time and a lot of practice. Don't rush it. It is fine to barely move the dildo while you orgasm in more traditional ways.
+
+9) Douching, maybe: Only when you have started to find anal pleasurable, it is **OPTIONAL** to use water or weak saline solution to clean yourself before anal play. Do **NOT** do an enema at this stage. Enema uses a lot of water, you want to find a very small douche and use very small amounts of liquid (no more than 100ml, yes, that small amount). Before douching, go to the toilet and empty your colon. Fill up the douche with no more than 100ml of liquid. Add lube to the nozzle of your douche and insert it into your anus. Squeeze the douche half-way through, let the liquid sit in your rectum for a while, consider jumping and shaking your body a little. Sit on the toilet, let everything out. Repeat the steps with the leftover liquid in the douche. Go to the toilet about 30 minutes later to remove any residue. The principle: don't use a lot liquid, squeeze and let it out.
+
+Note: Enemas or using more than 100ml of liquid is not for beginners. Focus on a better diet than more liquid. Large amounts of liquids can cause nausea and turn a few minute douching procedure into a multiple hour long discomforting procedure.
+
+10) More anal: At this point, you should be able to warmup your anal muscles and incorporate anal play into your regular masturbation sessions. During your anal play sessions you might still have the urge to go sit on the toilet. This is a natural reflex that does go away with practice. Continue to practice with your dildo while you masturbate, slowly focus more on anal play on each next session. Repeat this for many times until you don't feel the urge to push out the dildo. The principle: more anal, learn to ignore the urge to push out.
+
+Note: If you are worried that you will make a mess, then consider using a towel underneath you. Anal can be messy, get used to it.
+
+11) Anal sex with a partner: Only now you are ready. Either use a douche or not, up to you. Warmup your anal muscles as usual, use your fingers and your dildo, don't skip the warmup. Always use lube. Instruct your partner to start slow and instruct your partner to find the perfect speed, depth and position until you feel comfortable. Incorporate penile/clitoral stimulation while you are being penetrated to help you find anal sex more pleasurable. Don't think about the possibility of making a mess. The principle: warmup, **WARMUP**, go slow and gentle, enjoy yourself.
+
+FAQ:
+1) But where is the anal orgasm?
+- Orgasming from anal sex is going to require you to read the appropriate chapter
+2) Whats next?
+- Explore! Try getting different types of sex toys, try larger size sex toys, but you should really read the full guide
+3) Why is there no stage about relaxing?
+- There is, multiple stages are dedicated to it, this chapter gives more specific advice than simply "relax"
+4) I heard butt plugs are great for anal sex, is it true?
+- They can be a great way to prepare yourself before anal sex, though a dildo is going to be more suitable
+5) I did everything and I still don't find anal pleasurable, why?
+- Try increasing your sexual arousal (a lot) before starting your anal play sessions, but it might also mean that anal is simply not for you
+6) I saw poop, should I stop?
+- Just use a napkin and clean it off, anal is messy, deal with it
 
 # Reasons to have anal sex
 
@@ -683,7 +743,9 @@ Note: Porn stars are professionals and the scenes you see are not showing how th
 
 # Anal massage
 
-Anal massage is a special form of massage that focuses on stimulating the nerves around the anus and partly in the rectum. This type of massage can be used as a warmup since it mostly stimulates the nerves from the outside and optionally can be used to stimulate the inside of the rectum (internal anal massage). It is a very relaxing activity and can be preformed on males and females, many people find it very sensual since the anus is densely packed with nerve endings.
+Anal massage is a special form of massage that focuses on stimulating the nerves around the anus and partly in the rectum. This activity might sound as a simple warmup for the anal muscles and as a way to increase arousal, but anal massage has a very significant feature - it can teach a person to like anal.
+
+The anus has very densely packed nerve endings and a single touch can sometimes feel intense for people that never touched the area themselves. People who never have had anal before usually don't find anal sex very pleasant (even if muscles are relaxed and the anal receiver does not feel pain), in most cases this is due to the person not being used to the sensation of their anus being touched. Anal massage is a great way to get the person to be used to the sensation, by starting slow and associating the sensation of touch to anal area with pleasure you can (potentially) teach someone to like anal (with consent, of course).
 
 **IMPORTANT**: When preforming an anal massage to a female, it is important to prevent any liquids flowing from the anus to the vagina as that can cause an infection. It is best to cover the vagina with a towel or other object to prevent any lube of fluid dripping from the anus to the direction of the vagina.
 
