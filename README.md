@@ -82,6 +82,10 @@ So you are not a reader-type and want to just jump into it. Anal sex is not simp
 
 11) Anal sex with a partner: Only now you are ready. Either use a douche or not, up to you. Warmup your anal muscles as usual, use your fingers and your dildo, don't skip the warmup. Always use lube. Instruct your partner to start slow and instruct your partner to find the perfect speed, depth and position until you feel comfortable. Incorporate penile/clitoral stimulation while you are being penetrated to help you find anal sex more pleasurable. Don't think about the possibility of making a mess. <u>The principle: warmup, **WARMUP**, go slow and gentle, enjoy yourself.</u>
 
+**WARNING:** Never switch from anal sex to vaginal sex in the same session. There is a very high risk of causing an infection. You can switch from vaginal sex to anal sex, but not vice versa.
+
+*TIP:* Pee after anal sex (both giver and receiver) to minimize risk of infection.
+
 **FAQ**:
 1. But where is the anal orgasm?
 \- Orgasming from anal sex is going to require you to read the appropriate chapter
