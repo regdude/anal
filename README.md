@@ -1,6 +1,6 @@
 # Table of Contents
 - [Introduction](#Introduction)
-- [TL;DR](#TL;DR)
+- [TL;DR](#TLDR)
 - [Reasons to have anal sex](#Reasons-to-have-anal-sex)
 - [Safety](#Safety)
 - [Anatomy](#Anatomy)
