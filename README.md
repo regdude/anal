@@ -109,7 +109,7 @@ While there have not been a widespread study that specifically researches the su
 
 An article tries to example how women that engage into anal sex are more likely to reach any type of an orgasm, you can read about this [here](https://slate.com/technology/2010/10/why-do-women-who-have-anal-sex-get-more-orgasms.amp).
 
-Another article describes how similar are the PC muscle contractions during anal and vaginal orgasms, you can view the article [here](https://lioness.io/blogs/sex-guides/anal-orgasms-vs-vaginal-orgasms-double-penetration).
+Another article describes how similar are the pelvic floor muscle contractions (a muscle that surrounds nerves that are connected to your genitalia) during anal and vaginal orgasms, you can view the article [here](https://lioness.io/blogs/sex-guides/anal-orgasms-vs-vaginal-orgasms-double-penetration).
 
 You will most likely encounter people that are completely against anal sex, a lot of them might be self critical and lack mindfulness that is going to come as an obstacle to reach orgasms for both men and women, but you do need to remember that sex is a mutual agreement and requires consent from both (or more) parties. If you do convince your partner to try it, then there are a lot of interesting sensations awaiting for the (if done properly), as long as they are able to put aside the unhelpful thoughts.
 
