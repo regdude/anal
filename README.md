@@ -87,17 +87,19 @@ So you are not a reader-type and want to just jump into it. Anal sex is not simp
 *TIP:* Pee after anal sex (both giver and receiver) to minimize risk of infection.
 
 **FAQ**:
-1. But where is the anal orgasm?
+1. I sticked a dildo into my anus then started to thrust it very fast, but nothing happened, why?
+\- Anal sex cannot be approached the same way as males approach masturbation. It simply does not work that way.
+2. But where is the anal orgasm?
 \- Orgasming from anal sex is going to require you to read the appropriate chapter
-2. Whats next?
+3. Whats next?
 \- Explore! Try getting different types of sex toys, try larger size sex toys, but you should really read the full guide
-3. Why is there no stage about relaxing?
+4. Why is there no stage about relaxing?
 \- There is, multiple stages are dedicated to it, this chapter gives more specific advice than simply "relax"
-4. I heard butt plugs are great for anal sex, is it true?
+5. I heard butt plugs are great for anal sex, is it true?
 \- They can be a great way to prepare yourself before anal sex, though a dildo is going to be more suitable
-5. I did everything and I still don't find anal pleasurable, why?
+6. I did everything and I still don't find anal pleasurable, why?
 \- Try increasing your sexual arousal (a lot) before starting your anal play sessions, but it might also mean that anal is simply not for you
-6. I saw poop, should I stop?
+7. I saw poop, should I stop?
 \- Just use a napkin and clean it off, anal is messy, deal with it
 
 # Reasons to have anal sex
