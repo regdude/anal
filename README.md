@@ -18,7 +18,7 @@
 - [Materials](#Materials)
 - [Poses](#Poses)
 - [Butt plugs](#Butt-plugs)
-- [Learning to enjoy anal][#Learning-to-enjoy-anal]
+- [Learning to enjoy anal](#Learning-to-enjoy-anal)
 - [Orgasms](#Orgasms)
 - [Orgasms (female)](#Orgasms-female)
 - [Orgasms (male)](#Orgasms-male)
