@@ -1343,8 +1343,7 @@ Before we jump into exact steps, you should be aware of the basic principles beh
   2. Lay down in doggy style position, be sure to put your head down and keep your butt up as high as possible, consider arching your back too
   3. Play with your anus, create thrusting motions using a dildo or ask your partner to spend some time with your anus in this position, you need to get use to the position and feel relaxed
   4. Grab your butt cheeks with both hands and spread the butt cheeks as far apart as you can
-  5a. (with a partner) ask your partner to remove their penis (or dildo), some people may have better success when removing the sex toy or penis slowly, some may have better success when removing the sex toy or penis quite fast, but not to the point of pain or discomfort, remember to keep holding your butt cheeks apart
-  5b. (solo anal play session) by using a few fingers, remove the sex toy from your anus, this is complicated and may take multiple tries to remove the sex toy
+  5. (with a partner) ask your partner to remove their penis (or dildo), some people may have better success when removing the sex toy or penis slowly, some may have better success when removing the sex toy or penis quite fast, but not to the point of pain or discomfort, remember to keep holding your butt cheeks apart. / (solo anal play session) by using a few fingers, remove the sex toy from your anus, this is complicated and may take multiple tries to remove the sex toy
   6. Repeat the thrusting motions, butt cheek spreading and sex toy/penis removing as many times you need
   7. When you can feel that air is flowing into your rectum when you spread your butt cheeks, then you know you are gaping!
   8. Do not push the air out, clench or move, you will most likely close up your anus and stop the anal gaping
