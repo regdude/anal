@@ -28,6 +28,7 @@
 - [Aneros](#Aneros)
 - [Prostate massagers](#Prostate-massagers)
 - [Stretching](#Stretching)
+- [Gaping](#Gaping)
 - [Fisting](#Fisting)
 - [Random tips](#Random-tips)
 
@@ -1321,6 +1322,36 @@ You can stretch the depth of your rectum and colon, this is called depth trainin
 Note: For most people the colon at the narrowest part is about 4.0cm wide (without depth training) and it is quite stretchable, but the pressure inside the colon is going to cause a very noticeable discomfort for beginners. Consider using a depth probe that is less than 4.0cm wide if you just started depth training.
 
 **IMPORTANT:** If you feel sudden sharp pain, do NOT pull out the sex toy instantly, you will experience severe pain by not removing the sex toy slowly. Gently remove the sex toy and try to calm down as much as you can, during stress you are most likely going to cause the rectosigmoid junction to create an acute angle and makes it much harder to remove any objects from your colon.
+
+# Gaping
+
+Usually when someone mentions gaping, there are most likely referring to a situation where the anus (or vagina) is still visibly open even though a penis or other objects are already removed from it. As a result, the anus (or vagina) stays open and creates a "gaped" effect. While it may not be easy for everyone, there are a few very simple tricks you can do to achieve an anal gape. This guide will not cover on how to achieve a gape for a vagina.
+
+Anal gaping is possible in a few different forms, but in this guide we will only focus on a single method that is the easiest one. Anal gaping is possible in other ways too, but this method will give you the fastest results and is easy to use later on. We will cover a method that allows you to create an anal gape in the doggy style position, the same gape you most likely have seen often in porn.
+
+Before we jump into exact steps, you should be aware of the basic principles behind gaping:
+- Your anus needs to be relaxed, check the [Warmup](#Warmup) chapter
+- Your anus needs to be stretched, gaping is not for beginners (though some might be able to do it quite early on), be sure to check the [Stretching](#Stretching) chapter and have done a decent amount of anal stretching
+- You need to get into doggy style position, face down, butt up (there are other positions that allow anal gaping, doggy style is the easiest)
+- When a penis, dildo or object is being removed from your anus, you need to relax the anus, do not clench it or push it
+- When the penis, dildo or object is removed, you need to spread your butt cheeks (the big secret to successful gaping)
+- You need to allow the air to flow into your rectum
+- When air flows into your rectum, your anus will tend to open up more
+
+  From the basic principles above you should now understand that the big secret is to spread the butt cheeks and allow air to flow into your rectum. The tricky part is getting to the state that your anus wants to stay open. To better understand how to achieve this, consider this simple routine (a partner is recommended):
+  1. Warm up your anus, do quite a lot stretching, be sure to feel relaxed
+  2. Lay down in doggy style position, be sure to put your head down and keep your butt up as high as possible, consider arching your back too
+  3. Play with your anus, create thrusting motions using a dildo or ask your partner to spend some time with your anus in this position, you need to get use to the position and feel relaxed
+  4. Grab your butt cheeks with both hands and spread the butt cheeks as far apart as you can
+  5a. (with a partner) ask your partner to remove their penis (or dildo), some people may have better success when removing the sex toy or penis slowly, some may have better success when removing the sex toy or penis quite fast, but not to the point of pain or discomfort, remember to keep holding your butt cheeks apart
+  5b. (solo anal play session) by using a few fingers, remove the sex toy from your anus, this is complicated and may take multiple tries to remove the sex toy
+  6. Repeat the thrusting motions, butt cheek spreading and sex toy/penis removing as many times you need
+  7. When you can feel that air is flowing into your rectum when you spread your butt cheeks, then you know you are gaping!
+  8. Do not push the air out, clench or move, you will most likely close up your anus and stop the anal gaping
+ 
+Note: After your anus has closed up and you allowed air to flow into your rectum, the air is still in your rectum and will cause slight discomfort and farting sounds whenever a sex toy or penis is inserted into your anus again. To avoid this, it is best to push air out just right before a sex toy or penis is inserted into your anus. This takes quite a lot of practice to find the exact timing, but there is no need to keep the air into your rectum after you are done gaping, it only creates discomfort.
+
+As you can see, there is nothing difficult about gaping, but it does take quite a lot of practice. The hardest part is to learn to relax your anus. The most common reaction whenever air is starting to flow in, is to clench the anus. As a result, your anus closes up and you stop gaping. In a solo anal play session you might also have some difficulties removing the sex toy, some people have found that you can simply allow the sex toy to fall out. Remember to spread your butt cheeks as well, some people like to use duct tape (not recommended since removing the tape will most likely remove body hair in a painful way), there also specialized tools such as [Sread'ems](https://spreadme.co), or you can just ask your partner to spread your butt cheeks for you.
 
 # Fisting
 
