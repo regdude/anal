@@ -1173,7 +1173,7 @@ While there is no clear simple way that will guarantee an anal orgasm, we believ
 - Prepare yourself for anal: This is up to you, some people want to do an enema, but you need to do a  [Warmup](#Warmup) as a bare minimum. You want your anus to be ready to be stretched.
 - Get comfortable: It is important to feel un-distracted, safe, calm and relaxed. Lock your doors, make a cozy environment, take a bath and so on. If all you think about is work and problems, then you need to try again, your mind needs to be in a mindset that is ready to enjoy pleasure. 
 - Get aroused: Do whatever it takes to get yourself aroused. Check the [Sexual desire](#Sexual-desire) chapter for tips.
-- Get lube: Get quite a bit lube, make sure you read [Lube](#Chapter) so you can find the best lube that suits you.
+- Get lube: Get quite a bit lube, make sure you read the [Lube](#Lube) chapter so you can find the best lube that suits you.
 
 Now for the steps. While it is never a clear step-by-step process when it comes to sexual pleasure, we believe you want one so here are steps you should take that are going to increase the chances of getting an anal orgasm (yes, it does not guarantee, you need to accept this fact). If not an anal orgasm, we are certain you will enjoy the process a lot either way.
 
