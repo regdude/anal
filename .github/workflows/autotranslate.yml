@@ -4,7 +4,7 @@ on:
   # When you push to the `main` branch
   push:
     branches: [ main ]
-  # And optionally, once every 12 hours
+  # To manually run this workflow
   workflow_dispatch:
 
 jobs:
