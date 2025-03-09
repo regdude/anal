@@ -1400,5 +1400,3 @@ Rip the condom package at the corner, don't rip the package in the middle, you h
 
 You can use a back massager as a vibrator when placed on a sex toy, though some back massagers can be very powerful and might even be irritating.
 
-
-
