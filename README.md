@@ -1392,8 +1392,6 @@ When you have mastered elbow deep fisting, the next step can be either double fi
 
 Consider using flushable baby wipes to clean your partner whenever you wish
 
-Jelqing (or stretching exercises to increase the length of a penis) can be very dangerous since when done forcefully you can burst the capillaries of the skin or you can even damage the veins of your penis that control the blood flow. The latter is very dangerous as it can lead to erectile disfunction (impotence) that cannot be corrected using surgery and it does not respond to drugs such as Viagra. Some penis lengthening traction devices are medically approved for reducing the curvature of a penis or restoring the lost length due to Peyronie’s disease ([source](https://www.ncbi.nlm.nih.gov/m/pubmed/30916626/)). Vacuum pumps are also not effective for increasing the length of the penis.
-
 Don't be goal driven, you should not focus on achieving something, either it being an orgasm, width, length or whatever, you should only focus on having a good time. If you are going to be focused on a goal, you will most likely either not reach the orgasm or even injure yourself.
 
 When laying on your side, you can arch your back backwards, this can make a very slight effect of parting the butt cheeks.
