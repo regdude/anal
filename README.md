@@ -27,9 +27,11 @@
   - [Aneros](#Aneros)
   - [Prostate massagers](#Prostate-massagers)
 - [Other anal sex methods](#Other-anal-sex-methods)
-- [Stretching](#Stretching)
-- [Gaping](#Gaping)
-- [Fisting](#Fisting)
+- [Training](#Training)
+  - [Stretching](#Stretching)
+  - [Depth](#Depth)
+  - [Gaping](#Gaping)
+  - [Fisting](#Fisting)
 - [Random tips](#Random-tips)
 
 # Introduction
@@ -1278,7 +1280,17 @@ Note: You can use Aneros-type toys while having regular sex, you can experience 
 
 One of the most common complaints about Aneros is that it does not seem to work. The problem is that many people have very high expectations from the sex toy and they tend to forget how the user needs to practice a lot to reach a hands-free orgasm that the Aneros proclaims to be able to provide. The best approach is to not have any expectations and rather just enjoy the moment.
 
-# Stretching
+# Training
+
+In previous chapters we discussed about how to get started with anal and included various tips and tricks on how to reach pleasure while engaging into anal play or anal sex. In the upcoming sections we will discuss a very common topic that involves training your anus, your rectum, your colon on even other anal related organs.
+
+While each individual has their own reasons to engage in anal sex and have their own set of achieviements in mind, usually people are interested in anal training for mainly two reasons: be more prepared for anal sex with a partner or to experience intense stimulation that large or long sex toys can bring to you. You might have seen a video or two and you might be thinking that you want to experience what you saw on yourself, but you should never simply jump into trying large sex toys or asking your partner to be brutal during anal sex, it all takes practice and through anal training you might be able to achieve your goals.
+
+Note: When it comes to size, some people might not be able to insert extremely large sex toys due to their hip bone and muscle structure. If you desire to one day be able to take extremely large sex toys, be aware that not everyone can do that regardless of the amount of training, but it many cases you might be able to achieve your goals with proper training. Be sure to be realistic and honest to yourself. Even if you are unfortunate, there are other achieviements you can make regarding anal play.
+
+Read on to find how to be able to take a lot larger sex toys or penises in diameter, a lot longer sex toys, how to achieve anal gaping, how to achieve anal fisting and more.
+
+## Stretching
 
 There is not a lot of evidence that would show long-term effects on using large sex toys for stretching your anus, rectum or colon. Some people even report that while they stay under the largest "natural" bowel movement size, which is less than 5.7cm in diameter, then you can even experience stronger anal sphincter muscles, this is a similar effect of yoga since it stretches your muscles past the regular movement and makes your muscles more resilient. You can also go past that diameter and still not experience any long-term effects as long as you are creating a gentle stretch, but be warned that this is based on anecdotal reports since there simply is not enough research done for such a question. If you practice anal play in a slow manner, then you should not experience a lot of change in the external appearance of the anus either.
 
@@ -1292,7 +1304,7 @@ It is always very tempting to push your limits and during high arousal you tend 
 
 - Beginners start with sex toys that are 2.0cm in diameter
 - Play with the same size for multiple weeks until you can insert the sex toy with almost no force and discomfort
-- Increase the diameter of your next sex toy by no more than 3mm, in our case look for a sex toy that is 2.3cm in diameter
+- Increase the diameter of your next sex toy by no more than 3mm, in our case look for a sex toy that is about 2.3cm in diameter
 - Play with the same size until you can feel no discomfort
 - Increase the diameter again by no more than 3mm
 - Repeat the process until you can feel the sex toy cannot be inserted because your pelvic bone does not allow it
@@ -1317,13 +1329,15 @@ Increasing width and depth: To reach even further, you will need sex toys of var
 
 Increasing the width can be very sensual experience as there is an even spread around your rectum and anus, which makes you feel "full". So called "size queens" (people, who enjoy large sex toys or penises) enjoy this sensation. Each person is different and each person has its own limits. Anal sphincters can stretch very far, but it must be done properly and slowly, it takes years to reach sizes such as 6.0cm and up, but it is possible that you cannot stretch it further, sometimes your muscles simply are not capable of such of a stretch or you are limited by the size of your pelvic bone. Sadly limits are going to exist and you need to accept them as they are. Some people like to explore other options when they reach their maximum width and try to reach the maximum depth.
 
+## Depth
+
 You can stretch the depth of your rectum and colon, this is called depth training. You can reach incredible depths, there are even videos of people capable of inserting their arm in to the anus up to their armpits, this is possible due to the anatomy of the colon since it is quite straight after you have straightened your rectosigmoid junction. If you needed years to reach very large widths of sex toys, then it takes double of that to reach large depths since the colon is a lot more delicate than your anus and it is much easier to injure yourself than with width training. For depth training you are going to need special sex toys, sometimes called "anal probes" or "depth probes", they are very soft and long snake-like sex toys without much texture to not irritate your colon. One example of such sex toys is "SquarePeg Toys Depth Probe" ([example](stretching_probe.jpg)). Stretching your colon must be done very slowly, the general idea is to slowly slide the probe in and let it sit inside for a few minutes and then you can make very slow and gentle strokes. You are not going to be able to insert the depth probe at the same speed at all depths (you cannot insert it with a single thrust), you need to do it slowly and even pulling it back to try again on the next thrust, this means you cannot do fast and deep thrusts in your colon, they must be small and gradually increasing the depth. During depth play you need to pay special attention to relaxing your colon, this takes years of practice, the general idea is not to strain the muscles, don't try to push anything out, relax your muscles and allow the rectosigmoid junction to straighten out. In depth training the pose is very important, we went through multiple chapters of anatomy to understand the curvature of the rectum and colon, you should use this information to find the most suitable pose, the general idea is to make your colon and rectum as straight as possible, [squat pose](pose_squat.jpg) is one of those poses, another one mentioned before is to lean on to your left side that takes advantage of gravity to straighten out the rectosigmoid junction. You can switch between poses when doing depth training, some poses allow easier passage through the rectosigmoid junction and later other poses are better for getting deeper into the colon, consider switching poses, if you find it difficult to reach new depths. Remember, you need to take it very slowly, depth training is more of a process of guiding a sex toy through your colon rather than thrusting the sex toy inside and out.
 
 Note: For most people the colon at the narrowest part is about 4.0cm wide (without depth training) and it is quite stretchable, but the pressure inside the colon is going to cause a very noticeable discomfort for beginners. Consider using a depth probe that is less than 4.0cm wide if you just started depth training.
 
 **IMPORTANT:** If you feel sudden sharp pain, do NOT pull out the sex toy instantly, you will experience severe pain by not removing the sex toy slowly. Gently remove the sex toy and try to calm down as much as you can, during stress you are most likely going to cause the rectosigmoid junction to create an acute angle and makes it much harder to remove any objects from your colon.
 
-# Gaping
+## Gaping
 
 Usually when someone mentions gaping, there are most likely referring to a situation where the anus (or vagina) is still visibly open even though a penis or other objects are already removed from it. As a result, the anus (or vagina) stays open and creates a "gaped" effect. While it may not be easy for everyone, there are a few very simple tricks you can do to achieve an anal gape. This guide will not cover on how to achieve a gape for a vagina.
 
@@ -1352,7 +1366,7 @@ Note: After your anus has closed up and you allowed air to flow into your rectum
 
 As you can see, there is nothing difficult about gaping, but it does take quite a lot of practice. The hardest part is to learn to relax your anus. The most common reaction whenever air is starting to flow in, is to clench the anus. As a result, your anus closes up and you stop gaping. In a solo anal play session you might also have some difficulties removing the sex toy, some people have found that you can simply allow the sex toy to fall out. Remember to spread your butt cheeks as well, some people like to use duct tape (not recommended since removing the tape will most likely remove body hair in a painful way), there also specialized tools such as [Sread'ems](https://spreadme.co), or you can just ask your partner to spread your butt cheeks for you.
 
-# Fisting
+## Fisting
 
 Fisting is a very advanced form of anal sex that involves placing a whole fist inside the rectum (or vagina). It requires a lot of experience for both the giver and the receiver, but when done properly, it can give very intense stimulation due to the large pressure the fist creates. Male fists tend to be larger (average is about 7.0cm in diameter), female fists tend to be a bit smaller (average is about 5.5cm in diameter), but nevertheless both are very large objects, this does not prevent some very experienced people push their limits and take double fists, triple and even quadruple fists in the anus. Some people like to push the depth limits as well and are able to take a fist up to the arm pit. Fisting takes a lot of practice and skill, it takes years.
 
