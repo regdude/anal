@@ -1399,3 +1399,5 @@ When laying on your side, you can arch your back backwards, this can make a very
 Rip the condom package at the corner, don't rip the package in the middle, you have a risk to break the condom by ripping the package through the center.
 
 You can use a back massager as a vibrator when placed on a sex toy, though some back massagers can be very powerful and might even be irritating.
+
+
