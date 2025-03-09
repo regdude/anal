@@ -1,22 +1,24 @@
 name: Translate Readme
 
 on:
-    push:
-        branches: ['**']
+  # When you push to the `main` branch
+  push:
+    branches: [ main ]
+  # And optionally, once every 12 hours
+  workflow_dispatch:
 
 jobs:
-    translate:
-        runs-on: ubuntu-latest
-        steps:
-            - name: Checkout
-              uses: actions/checkout@v3
-              with:
-                fetch-depth: 3
+  translate-readme:
+    runs-on: ubuntu-latest
 
-            - name: Auto Translate
-              uses: Lin-jun-xiang/action-translate-readme@v2
-              with:
-                token: ${{ secrets.Action_Bot }}
-                zhipuai: ${{ secrets.zhipuai_api_key }} # Optional: Based on step3
-                openai: ${{ secrets.openai_api_key }}  # Optional: Based on step3
-                langs: "en,French" # You can define any langs
+    steps:
+    - name: Checkout
+      uses: actions/checkout@v4
+
+    - name: Translate Readme
+      uses: crowdin/translate-readme@v0.1.2
+      env:
+        CROWDIN_PROJECT_ID: ${{ secrets.CROWDIN_PROJECT_ID }}
+        CROWDIN_PERSONAL_TOKEN: ${{ secrets.CROWDIN_PERSONAL_TOKEN }}
+        # Optional. Only for Crowdin Enterprise
+        CROWDIN_ORGANIZATION: ${{ secrets.CROWDIN_ORGANIZATION }}
