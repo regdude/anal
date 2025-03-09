@@ -4,9 +4,9 @@
 - [Reasons to have anal sex](#Reasons-to-have-anal-sex)
 - [Safety](#Safety)
 - [Anatomy](#Anatomy)
-- [Anatomy (female)](#Anatomy-female)
-- [Anatomy (male)](#Anatomy-male)
-- [PC muscle](#PC-muscle)
+  - [Anatomy (female)](#Anatomy-female)
+  - [Anatomy (male)](#Anatomy-male)
+  - [PC muscle](#PC-muscle)
 - [Health](#Health)
 - [Diet](#Diet)
 - [Cleansing](#Cleansing)
@@ -243,7 +243,7 @@ Between the sigmoid and descending colon you encounter a slight bend. Usually it
 
 This chapter has covered the anatomical basics that are common for both males and females, but this is where the similarities end. In next chapters we will review how each gender is different from anatomical stand point.
 
-# Anatomy (female)
+## Anatomy (female)
 
 The most significant difference between males and females is in the reproductive organ area, but these differences also bring some changes to the anatomy of rectum. Consider the following diagram ([source](https://www.magonlinelibrary.com/doi/abs/10.12968/bjon.2018.27.22.1306)):
 
@@ -295,7 +295,7 @@ The Skene's glands are usually called the "female prostate". The complete purpos
 
 ![Anatomy female all spots](anatomy_female_allspots.jpg "anatomy female all spots")
 
-# Anatomy (male)
+## Anatomy (male)
 
 The most significant difference between males and females is in the reproductive organ area, but these differences also bring some changes to the anatomy of rectum. Consider the following diagram ([source](https://www.magonlinelibrary.com/doi/abs/10.12968/bjon.2018.27.22.1306)):
 
@@ -345,7 +345,7 @@ The cowper's glands (or bulbourethral glands) are pea sized glands present infer
 
 ![Anatomy male Cowper's glands](anatomy_male_cowpers.jpg "anatomy male cowpers glands")
 
-# PC muscle
+## PC muscle
 
 The PC muscle (sometimes called the pelvic floor muscle) or "pubococcygeus" is a muscle that located on your pelvic floor and supports your bladder and rectum to help you control your urine flow. ([source](https://www.uclahealth.org/urology/prostate-cancer/kegel-exercises-for-men)). This is a special muscle that deserves attention since it is surrounding multiple areas that might be related of triggering an orgasm. There are some studies, that did not find a correlation between the toning of this muscle and increased sexual pleasure in women ([source](https://pubmed.ncbi.nlm.nih.gov/7345161/)), yet other studies report the opposite ([source](https://www.scielo.br/j/fm/a/Zy3kbm3dtcXT6TrcyZKVFkb/?lang=en)). As before, it is up to the reader to decide what to believe in and how to use the following information.
 
