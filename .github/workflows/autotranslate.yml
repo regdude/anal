@@ -14,9 +14,7 @@ jobs:
                 fetch-depth: 3
 
             - name: Auto Translate
-              uses: Lin-jun-xiang/action-translate-readme@v2 # Based on the tag
+              uses: Lin-jun-xiang/action-translate-readme@v2
               with:
-                token: ${{ secrets.Action_Bot }} # Based on step2 name
-                zhipuai: ${{ secrets.zhipuai_api_key }} # Optional: Based on step3
-                openai: ${{ secrets.openai_api_key }}  # Optional: Based on step3
-                langs: "en,lv" # You can define any langs
+                token: ${{ secrets.Action_Bot }}
+                langs: "en,lv" 
