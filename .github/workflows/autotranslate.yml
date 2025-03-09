@@ -1,24 +1,34 @@
 name: Translate Readme
 
 on:
-  # When you push to the `main` branch
   push:
     branches: [ main ]
-  # To manually run this workflow
   workflow_dispatch:
 
 jobs:
   translate-readme:
     runs-on: ubuntu-latest
+    permissions:
+      contents: write
+      pull-requests: write
 
     steps:
-    - name: Checkout
-      uses: actions/checkout@v4
+      - name: Checkout
+        uses: actions/checkout@v3
 
-    - name: Translate Readme
-      uses: crowdin/translate-readme@v0.1.2
-      env:
-        CROWDIN_PROJECT_ID: ${{ secrets.CROWDIN_PROJECT_ID }}
-        CROWDIN_PERSONAL_TOKEN: ${{ secrets.CROWDIN_PERSONAL_TOKEN }}
-        # Optional. Only for Crowdin Enterprise
-        CROWDIN_ORGANIZATION: ${{ secrets.CROWDIN_ORGANIZATION }}
+      - name: Translate Readme
+        uses: crowdin/translate-readme@v0.1.0
+        with:
+          language_switcher: true
+        env:
+          CROWDIN_PROJECT_ID: ${{ secrets.CROWDIN_PROJECT_ID }}
+          CROWDIN_PERSONAL_TOKEN: ${{ secrets.CROWDIN_PERSONAL_TOKEN }}
+
+      - name: Create Pull Request
+        uses: peter-evans/create-pull-request@v5
+        with:
+          title: New Readme Translations by Crowdin
+          body: By [translate-readme](https://github.com/crowdin/translate-readme) GitHub action
+          commit-message: New Readme Translations
+          committer: Crowdin Bot <support+bot@crowdin.com>
+          branch: docs/readme-translations
