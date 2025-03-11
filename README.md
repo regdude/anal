@@ -1,6 +1,3 @@
-<!-- TRANSLATE-README-LANGUAGES-START -->
-<!-- TRANSLATE-README-LANGUAGES-END -->
-
 # Table of Contents
 - [Introduction](#Introduction)
 - [TL;DR](#TLDR)
