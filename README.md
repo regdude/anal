@@ -1,4 +1,4 @@
-[DE](README.de.md) | [ES](README.es.md) | [FR](README.fr.md) | [ZH](README.zh.md)
+[ZH](README.zh.md)
 
 # Table of Contents
 - [Introduction](#Introduction)
