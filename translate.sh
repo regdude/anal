@@ -6,7 +6,7 @@ FILE="/home/user/Downloads/README.md"
 SAVEPATH="/home/user/Downloads"
 SAVENAME="README"
 SAVEEXT="md"
-declare -a TARGET=("fr" "zh" "de" "es")
+declare -a TARGET=("zh") # ("fr" "zh" "de" "es")
 TEMPFILE="$SAVEPATH/$SAVENAME.txt"
 
 /bin/cp -rf "$FILE" "$TEMPFILE"
